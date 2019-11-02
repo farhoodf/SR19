@@ -9,4 +9,4 @@ A link to the video for the poster presentation is provided [here](https://www.y
 
 Please do not hesistate to contact us [via skype](https://join.skype.com/invite/tkc2hPVB03ja) for furthur information.
 
-You can also reach us using Hangout or Email [farhood.farahnak@gmail.com]<farhood.farahnak@gmail.com>
+You can also reach us using Hangout or Email <farhood.farahnak@gmail.com>
